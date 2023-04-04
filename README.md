@@ -1,0 +1,1 @@
+# propriety_vendor_motorola_pstar
